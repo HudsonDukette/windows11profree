@@ -102,4 +102,4 @@ There is also an video tutorial to make it easy to follow. Click on the image be
 
 # Last Words
 I hope you enjoy it!
-If you have any further questions, you can email me at "Minionguyjpro@gmail.com" or comment on this guide.
+If you have any further questions, you can email me at "hudsoduk@gmail.com" or comment on this guide.
